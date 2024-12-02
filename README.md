@@ -65,7 +65,7 @@ This dashboard provides Blinkit with essential insights to:
 ---
 
 ### Connect with Me
-If you have any questions or feedback, feel free to reach out on [LinkedIn](https://www.linkedin.com/in/aadhilmohammedz/)!
+If you have any questions or feedback, feel free to reach out on [LinkedIn](www.linkedin.com/in/dinesh-m-95a9aa233)!
 
 ---
 
